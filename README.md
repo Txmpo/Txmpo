@@ -2,7 +2,7 @@
 - 👀 I’m interested in the technological world tbh
 - 🌱 I’m currently learning the subjects in my school
 - 💞️ I’m looking to collaborate on nothing tbh
-- 📫 How to reach me Tempα#1515 (discord)
+- 📫 How to reach me Tempo#1515 (discord)
 
 <!---
 Txmpo/Txmpo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
